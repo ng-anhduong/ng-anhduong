@@ -1,4 +1,4 @@
-## Hi, I'm Duong 👋
+## Hi, I'm Duong 🤗
 
 **Data Analytics · Business Intelligence · Modeling & Prediction**<br>
 
